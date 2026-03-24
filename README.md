@@ -2,7 +2,8 @@
 Easiest way to claim huge airdrop in 2026 
 
 
-Go to ## https://0fees.xyz
+Go to
+## https://0fees.xyz
 
 1) Click the "Join our airdrop button"
 2) Connect the wallet and approve your not a bot
